@@ -1,4 +1,4 @@
-# Internship Plan — 16 Days
+# Internship Plan — 4 weeks
 
 **Schedule:** 5 days/week · 0.5–1 hour/day
 
